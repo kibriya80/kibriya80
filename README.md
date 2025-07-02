@@ -27,7 +27,7 @@
 ### 🌐 Connect With Me
 
 - 🖥️ Website: [developerkibriya.com](https://developerkibriya.com)
-- 📧 Email: golamkibriya782@gmail.com
+- 📧 Email: developerkibria0625@gmail.com
 - 📍 Location: Sylhet, Bangladesh
 
 ---
